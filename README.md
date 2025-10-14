@@ -1,7 +1,8 @@
 
 <div align="center">
+ 
 
-[![GULCH](http://img.youtube.com/vi/vZ8wIAlLuG4/0.jpg)](http://www.youtube.com/watch?v=vZ8wIAlLuG4&align="left"width="100"height="250" "Gulch - 12/21/2019")
+https://github.com/user-attachments/assets/04fc1a8a-cc9d-4918-b4e5-14613c6c722a
 
 <h6 align>   
 
